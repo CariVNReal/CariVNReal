@@ -100,7 +100,41 @@
 | Random Roblox Ultra VIP | 500.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-gold?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
 | Random Roblox Legendary | 750.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-gold?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
 | Random Roblox Mythic Account | 1.000.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-gold?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
-
+| Random Steal A Brainrot | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Steal A Brainrot Vip | 80.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Jujutsu Shenanigans | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Sorcerer Battlegrounds | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Anime Rangers X | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Anime Spirits | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random One Fruit Simulator | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Grimoires Era | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Basketball Zero | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Volleyball Legends | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Fire Force Online | 45.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Project Mugetsu | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random A One Piece Game | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Gym League | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Rogue Demon | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Sol RNG | 50.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Arm Wrestle Simulator | 25.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Plane Crazy | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Dead Rails | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Southwest Florida | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Goalbound | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Race Clicker | 20.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random The Mimic | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Apeirophobia | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Emergency Hamburg | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Ultimate Football | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Toilet Legacy Defense | 20.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Anime Dungeon Fighters | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random SCP Roleplay | 25.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Survive The Killer | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Islands | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Pls Donate | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Wisteria 2 | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Demonfall | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Titan Warfare | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
 ---
 
 # 📬 Contact
