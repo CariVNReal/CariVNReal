@@ -11,34 +11,23 @@
   <a href="https://www.youtube.com/@carivn3957">
     <img src="https://img.shields.io/youtube/channel/subscribers/UC-ktZcWZztctj5Tgw2E3iUQ?style=for-the-badge&logo=youtube&label=Subscribers">
   </a>
+
   <img src="https://img.shields.io/youtube/channel/views/UC-ktZcWZztctj5Tgw2E3iUQ?style=for-the-badge&label=Views">
 </p>
 
 ---
 
-## 📺 About
-**Cari VN** là kênh YouTube gaming & giải trí dành cho cộng đồng Việt Nam.  
-Nội dung nhanh, dễ tiếp cận và mang tính giải trí cao.
-
----
-
-## 🎮 Content
-- Gameplay (Free Fire, Roblox, …)  
-- Highlight & video giải trí  
-- Nội dung trending  
-- YouTube Shorts  
-
----
-
-## 🌐 Other Channels
+# 🌐 Other Channels
 
 <p align="center">
   <a href="https://www.youtube.com/@CariRobloxreal">
     <img src="https://img.shields.io/badge/Cari%20Roblox-red?style=for-the-badge&logo=youtube">
   </a>
+
   <a href="https://www.youtube.com/@CariMC-c9i">
     <img src="https://img.shields.io/badge/Cari%20MC-blue?style=for-the-badge&logo=youtube">
   </a>
+
   <a href="https://www.youtube.com/@CariGame">
     <img src="https://img.shields.io/badge/Cari%20Game-green?style=for-the-badge&logo=youtube">
   </a>
@@ -46,7 +35,75 @@ Nội dung nhanh, dễ tiếp cận và mang tính giải trí cao.
 
 ---
 
-## 📬 Contact
+# 🛒 Cari VN Ultimate Shop
+
+## 🎮 Blox Fruits Accounts
+
+| 💎 Sản phẩm | 💰 Giá | 🛒 |
+|---|---|---|
+| GODHUMAN + SONG KIẾM ODEN + 3 TRÁI ÁC QUỶ ĐỎ | 85.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| GODHUMAN + RANDOM SKULL GUITAR + MOCHI V2 + FULL GEAR V4 | 140.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| GODHUMAN + LEVEL MAX + CDK + SKULL GUITAR + KITSUNE | 140.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| GODHUMAN + MOCHI V2 FULL CHIÊU + YETI | 125.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| GODHUMAN + FULL GEAR V4 CYBORG + SKULL GUITAR | 110.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+
+---
+
+## ⚔️ Random Liên Quân Accounts
+
+| 💎 Sản phẩm | 💰 Giá | 🛒 |
+|---|---|---|
+| Random Liên Quân Vip | 1.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-blue?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Liên Quân Vip Full Tướng | 15.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-blue?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Trắng Thông Tin Skin Vip | 55.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-blue?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random TTT Nổ Trên 500 Skin SSS | 840.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-blue?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+
+---
+
+## 🔥 Random FF & Blox Fruits Packages
+
+| 🎁 Gói Random | 💰 Giá | 🛒 |
+|---|---|---|
+| Random 20K | 20.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random 50K | 50.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random 100K | 100.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random 150K | 150.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random 200K | 200.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random 300K | 300.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random 500K | 500.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random 1M | 1.000.000đ | [![BUY](https://img.shields.io/badge/MUA-NGAY-red?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+
+---
+
+# 🌍 Random Roblox Accounts
+
+| 🎮 Game | 💰 Giá | 🛒 |
+|---|---|---|
+| Random Blox Fruits | 20.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Grow A Garden | 20.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Blue Lock Rivals | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Anime Adventures | 50.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Fisch | 20.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random MM2 | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random BedWars | 25.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Adopt Me | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Deepwoken | 80.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random AUT | 45.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Arcane Odyssey | 45.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-green?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Pls Donate | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Sol RNG | 50.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Steal A Brainrot | 30.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Jujutsu Shenanigans | 35.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Anime Rangers X | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Demonfall | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Titan Warfare | 40.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-purple?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Roblox Ultra VIP | 500.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-gold?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Roblox Legendary | 750.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-gold?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+| Random Roblox Mythic Account | 1.000.000đ | [![MUA](https://img.shields.io/badge/MUA-NGAY-gold?style=flat-square)](https://www.facebook.com/profile.php?id=61574365751402) |
+
+---
+
+# 📬 Contact
 
 <p align="center">
   <a href="mailto:valt25697@gmail.com">
@@ -54,10 +111,12 @@ Nội dung nhanh, dễ tiếp cận và mang tính giải trí cao.
   </a>
 </p>
 
-- 📧 valt25697@gmail.com  
+- 📧 Email: valt25697@gmail.com  
+- 📺 YouTube: https://www.youtube.com/@carivn3957  
+- 💬 Facebook Shop: https://www.facebook.com/profile.php?id=61574365751402
 
 ---
 
 <p align="center">
-  💖 Thanks for visiting Cari VN
+  💖 Thanks for visiting Cari VN Ultimate Shop
 </p>
