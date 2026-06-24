@@ -34,7 +34,14 @@
 </p>
 
 ---
+<br>
 
+# ⛔⛔⛔ TẠM DỪNG BÁN ACC ⛔⛔⛔
+
+## 🚫 SHOP ACC HIỆN ĐANG TẠM DỪNG
+## ⏳ Vui lòng quay lại sau khi shop mở lại
+
+---
 # 🛒 Cari VN Ultimate Shop
 
 ## 🎮 Blox Fruits Accounts
